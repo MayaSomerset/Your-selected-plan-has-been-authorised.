@@ -4,7 +4,7 @@ The Norton 360 Life Lock Plan payment of $359.99 USD has been completed. You mus
 
 Product Details
 Product: Norton 360 Life Lock
-Invoice No: #INV-SV9-KIS-DSAA
+Invoice No: #INV-SV9-KIS-DSAA7
 Current Plan: 1-Year Subscription
 
 Please get in touch with our support staff right away if you did not authorize this transaction. +1 (828) 242-4163
